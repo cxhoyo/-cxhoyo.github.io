@@ -1,4 +1,4 @@
-倒计时地址：https://cxhoyo.github.io/dmmdzz.cou/
+倒计时地址：https://cxhoyo.github.io/dmmdzz.exe/
 
 
 什么？！2032年，逃跑不会凉了吧！不会吧不会吧！？
@@ -21,4 +21,4 @@
 PS:已在PC端转世成功，昵称：CSX_exe
 
 
-最后编辑于：2025.1.5：23点02分
+最后编辑于：2025.1.5：23点11分
